@@ -1,1 +1,0 @@
-# grupodematematicapiramedeaf916j
